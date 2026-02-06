@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MAOA940125MJCRRB04
+MAOA940125MJCRRB04
